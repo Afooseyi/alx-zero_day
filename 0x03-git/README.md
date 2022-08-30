@@ -1,1 +1,1 @@
-my name is Seyi
+God is great
